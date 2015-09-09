@@ -18,8 +18,7 @@ par les nouvelles tendances technologique.
 > Je cherche en ce moment un projet sympa et innovant facile d'utilisation pour tout le monde. Je suis donc partant pour un nouveau projet avec
 n'importe qui.
 
-Vous pouvez aller sur [Mon journal perso](https://paper.li/aratsizafy/1441261503) pour voir les actualités international que j'ai 
-séléctionner pour vous.
+Vous pouvez aller sur [Mon journal perso](https://paper.li/aratsizafy/1441261503) pour voir les actualités international que j'ai séléctionner pour vous.
 --------------------------------------------------------------------
 
 ![Keep calm.](http://ecx.images-amazon.com/images/I/51qqEvz9X8L.jpg)
